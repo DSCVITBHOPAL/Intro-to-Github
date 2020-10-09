@@ -4,7 +4,7 @@
 
 1. Sarthak Kundra
 2. Akshit Gupta
-3. Chaitanya Sapre
+3. Chaitanya Sapre - Email received
 4. Hardik Kumar
 5. Harsh Pal
 6. Onkar Shaligram
