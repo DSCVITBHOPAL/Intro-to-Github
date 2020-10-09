@@ -17,4 +17,4 @@
 13. Oorja Rungta - Email received
 14. Anushka Agnihotri - Email received
 
-Email me your "Name" and "Email" on "smitbarmase@outlook.com"
+Email me your "Name" and "Email" on "smitbarmase@outlook.com" for DSC Badges.
