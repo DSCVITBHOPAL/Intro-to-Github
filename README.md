@@ -6,7 +6,7 @@
 2. Akshit Gupta - Email received
 3. Chaitanya Sapre - Email received
 4. Hardik Kumar
-5. Harsh Pal
+5. Harsh Pal - Email received
 6. Onkar Shaligram - Email received
 7. Rajat Kaushik - Email received
 8. Aayush Mishra - Email received
